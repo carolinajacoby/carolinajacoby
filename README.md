@@ -13,7 +13,6 @@
  Acredito que o sucesso de qualquer profissional está totalmente conectado a relações mais humanizadas e empáticas. <br>
  
  Mulher  🏳️‍🌈 <br>
- Desenvolvedora Front-end  👩‍💻 <br>
  Farmacêutica  💊 <br>
  Mãe de pet  🐶🐶 <br>
 
